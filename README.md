@@ -1,2 +1,6 @@
 # gamer-stash
 this is the gamer stash
+this has lots of html games
+you can use this for your pr0xy or g@mesite
+if you use this code for a gamesite or a pr0xy add credits with my name
+enjoy and game on!
